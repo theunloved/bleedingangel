@@ -41,8 +41,6 @@ ponytown
 
 ୨୧ byi
 
-♡ please read my rentry first
-
 ♡ don't copy my skins
 
 ♡ whisper if i'm afk plz
@@ -59,7 +57,6 @@ ponytown
 
 <br>
 
-thanks for visiting my profile ♡
 
 🪽 ⋆｡𖦹°‧
 
