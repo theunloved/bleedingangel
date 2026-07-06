@@ -29,7 +29,7 @@ age      :: 16
 
 ♡ don't copy my skins
 
-♡ whisper if i'm afk plz
+♡ whisper plz
 
 ♡ c+h always encouraged!!!
 
