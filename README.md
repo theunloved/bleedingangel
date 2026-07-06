@@ -11,8 +11,6 @@ living as an angel girl.
 ୨୧ she ／ doll
  16 yo 
 
-read rentry BYI
-sign ata please
 
  c+h always enc <3
 
@@ -25,7 +23,8 @@ sign ata please
 
 pronouns :: she / doll                                                                                                                                             
 age      :: 16
-                                                                                                                                                                                              <br>        ♡ interests
+                                                                                                                                                                                              <br>      
+                                                                                                                                                                                              ♡ interests
 
 
 
@@ -38,6 +37,7 @@ horror
 sleeping
 
 ponytown
+
 
 ୨୧ byi
 
