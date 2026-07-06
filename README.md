@@ -24,21 +24,7 @@ living as an angel girl.
 pronouns :: she / doll                                                                                                                                             
 age      :: 16
                                                                                                                                                                                               <br>      
-                                                                                                                                                                                              ♡ interests
-
-
-
-pastel
-
-horror
-
- music
-
-sleeping
-
-ponytown
-
-
+                                                                                                                                                                                              
 ୨୧ byi
 
 ♡ don't copy my skins
