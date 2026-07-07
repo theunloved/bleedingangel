@@ -1,15 +1,12 @@
 <div align="center">
 
-living as an angel girl.
-
-"heaven isn't a place, it's a feeling."
+and whatever happens... it all happens for a reason.
 
 <img src="https://readme-typing-svg.demolab.com?font=Iosevka&weight=500&size=14&duration=3500&pause=1000&color=FFFFFF&center=true&vCenter=true&width=500&lines=plz+bmf+%E1%A5%AB;read+rentry+BYI;sign+ata+please.;c%2Bh+always+encouraged+%3C3"/>
 
 <br>
 
-୨୧ she ／ doll
- 16 yo 
+୨୧ ,,please hurry, leave me, i can't breath. please don't say you love me..."
 
 
  c+h always enc <3
@@ -18,7 +15,7 @@ living as an angel girl.
 
 
 
-🪽 about me
+ about me
 
 
 pronouns :: she / doll                                                                                                                                             
@@ -44,6 +41,6 @@ age      :: 16
 <br>
 
 
-🪽 ⋆｡𖦹°‧
+ ⋆｡𖦹°‧
 
 </div>
