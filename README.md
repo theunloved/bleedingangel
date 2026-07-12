@@ -1,43 +1,22 @@
 <div align="center">
+  <img src="https://media.tenor.com/2MHoFOzYMokAAAAd/joe-goldberg.gif" width="250" alt="Joe Goldberg GIF">
+</div>
+<div align="center">
 
-and whatever happens... it all happens for a reason.
-
-<img src="https://readme-typing-svg.demolab.com?font=Iosevka&weight=500&size=14&duration=3500&pause=1000&color=FFFFFF&center=true&vCenter=true&width=500&lines=plz+bmf+%E1%A5%AB;read+rentry+BYI;sign+ata+please.;c%2Bh+always+encouraged+%3C3"/>
-
+c*h always enc <3
+<br>
+w2i always
 <br>
 
-୨୧ ,,please hurry, leave me, i can't breath. please don't say you love me..."
-
-
- c+h always enc <3
-
-<br>
+<img src="https://komarev.com/ghpvc/?username=theunloved&style=for-the-badge&color=63666A&label=cutiepies" />
 
 
 
- about me
-
-
-pronouns :: she / doll                                                                                                                                             
-age      :: 16
-                                                                                                                                                                                              <br>      
-                                                                                                                                                                                              
-୨୧ byi
-
-♡ don't copy my skins
-
-♡ whisper plz
-
-♡ c+h always encouraged!!!
-
-♡ be respectful <3
-
-
-
-💌 sign ata → https://attachedsoul.atabook.org
-
-<img src="https://count.getloli.com/@bleedingangel?name=bleedingangel&theme=gelbooru&padding=7&offset=0&align=center&scale=1&pixelated=1"/>
-
+<div align="center">
+ 
+[sign plz!!](https://attachedsoul.atabook.org)
+[read this!!](https://rentry.co/celinsrentry)
+[pronouns page](https://en.pronouns.page/@attachedsoull)
 <br>
 
 
