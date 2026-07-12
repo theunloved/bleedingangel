@@ -3,7 +3,7 @@
 </div>
 <div align="center">
 
-c*h always enc <3
+c*h comf <3
 <br>
 w2i always
 <br>
