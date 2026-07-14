@@ -16,7 +16,6 @@ w2i always
  
 [sign plz!!](https://attachedsoul.atabook.org)
 [read this!!](https://rentry.co/celinsrentry)
-[pronouns page](https://en.pronouns.page/@attachedsoull)
 <br>
 
 
