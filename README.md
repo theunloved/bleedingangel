@@ -3,9 +3,7 @@
 </div>
 <div align="center">
 
-c*h comf <3
-<br>
-w2i always
+cudcomf <3
 <br>
 
 <img src="https://komarev.com/ghpvc/?username=theunloved&style=for-the-badge&color=63666A&label=cutiepies" />
