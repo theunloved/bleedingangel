@@ -3,7 +3,7 @@
 </div>
 <div align="center">
 
-cudcomf <3
+cudcomf 
 <br>
 
 <img src="https://komarev.com/ghpvc/?username=theunloved&style=for-the-badge&color=63666A&label=cutiepies" />
