@@ -12,8 +12,9 @@ cudcomf
 
 <div align="center">
  
-[sign ata](https://attachedsoul.atabook.org)
-[rentry](https://rentry.co/celinsrentry)
+[sign ata](https://attachedsoul.atabook.org)ㅤㅤㅤ
+[rentry](https://rentry.co/celinsrentry)ㅤㅤㅤ
+[guns.lol](https://guns.lol/attachedsoull)
 <br>
 
 
