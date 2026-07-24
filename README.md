@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://media.tenor.com/2MHoFOzYMokAAAAd/joe-goldberg.gif" width="250" alt="Joe Goldberg GIF">
+  <img src="https://media.tenor.com/2MHoFOzYMokAAAAd/joe-goldberg.gif" width="500" alt="Joe Goldberg GIF">
 </div>
 <div align="center">
 
